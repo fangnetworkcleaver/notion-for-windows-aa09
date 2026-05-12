@@ -1,4 +1,4 @@
-# 
+# Enhance Notion for Windows with updated Notion for Windows Automation | database-creation + templates, the #1 automation. Includes database-creation and templates for a smoother
 
 
 
